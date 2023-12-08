@@ -1,1 +1,1 @@
-https://xser3174.github.io/ttt/
+https://xser3174.github.io/ttt
